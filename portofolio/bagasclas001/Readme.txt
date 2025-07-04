@@ -1,0 +1,1 @@
+Terimakasih jangan lupa follow ig satya
